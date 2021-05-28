@@ -2,7 +2,7 @@
 
 
 
-![Legenda](C:\workspace\finans\img\capa.jpg)
+![Legenda](https://i.imgur.com/WrMa9uq.jpg)
 
 
 
